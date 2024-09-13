@@ -1,0 +1,5 @@
+- 👋 Hello I’m @Henryjpg I'm 14
+- 👀 I’m interested in helping my moms diabetes and making it easier for her
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me henryv2029@gmail.com
+- 😄 Pronouns: HE/HIM/HIS
